@@ -8,3 +8,4 @@ Always on the way
 A conservative innovator + A sensible rationalist + A realistic idealist + A pessimistic optimist 
 ------------------------------------------------------------------------------------------------------
 
+I need a job!
