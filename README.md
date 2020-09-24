@@ -4,9 +4,11 @@ This is the github webpage of Boyuan Li
 
 
 I am:
+
 Always on the way
 A conservative innovator + A sensible rationalist + A realistic idealist + A pessimistic optimist 
 - -----------------------------------------------------------------------------------------------------
 I believe: 
+
 1.01 ^ 365 = 37.8 
 - -----------------------------------------------------------------------------------------------------
